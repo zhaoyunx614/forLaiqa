@@ -1,2 +1,2 @@
-# byeLAIQ
+# forLAIQ
 ALL THE BEST
